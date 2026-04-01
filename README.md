@@ -1,0 +1,2 @@
+# Jobshet-5--BRUTE-FORCE-DAN-DIVIDE-CONQUER-
+minggu5
